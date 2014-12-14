@@ -1,0 +1,1 @@
+Projects of various types, the hello-world's of ideas!
